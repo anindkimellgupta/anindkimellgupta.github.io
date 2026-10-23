@@ -4,7 +4,7 @@
 
 *From strategy to delivery and adoption.*
 
-![Anindya Kimell Gupta — Leadership Profile](Anindya_Leadership_Profile(1).png)
+![Anindya Kimell Gupta — Leadership Profile](Anindya_Leadership_Profile.png)
 
 **I make complex change clear enough to act on.**
 
